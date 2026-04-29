@@ -1,4 +1,4 @@
-
+vip Script for hooked is the best hooked Script, featuring no clip and auto-upgrade. Safe and powerful for all your needs.
 
 
 
